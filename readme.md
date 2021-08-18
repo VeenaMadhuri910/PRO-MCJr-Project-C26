@@ -1,1 +1,1 @@
-this is a ice cream with vanilla flavour
+This is a recipe of Vanilla Icecream.
