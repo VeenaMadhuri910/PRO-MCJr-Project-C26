@@ -1,9 +1,9 @@
 
 To make Vanilla Ice cream :
 
-step 1 :
+Step 1 :
 
-take a small bowl and add 1 teaspoon cornflour in 4 tablespoon milk, stir it into a smooth paste. Ensure that you use cold milk or lumps will be formed. Mix well and keep the mixture aside. In the meantime, take a vessel and boil the milk
+Take a small bowl and add 1 teaspoon cornflour in 4 tablespoon milk, stir it into a smooth paste. Ensure that you use cold milk or lumps will be formed. Mix well and keep the mixture aside. In the meantime, take a vessel and boil the milk.
 
 Step 2 :
 
