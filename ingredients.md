@@ -1,7 +1,7 @@
-materials required :
-milk
-sugar
-corn flour
-fresh cream
-vanilla essence
+Ingredients :
+Milk
+Sugar
+Corn Flour
+Fresh Cream
+Vanilla Essence
 
